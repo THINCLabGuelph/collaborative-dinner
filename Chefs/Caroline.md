@@ -1,5 +1,5 @@
 # Name
-![Name](/Images/chef-profile.png)
+![Name](/Images/the-hobbit215-594x309.png)
 
 ## Inspiration / Quote
 
