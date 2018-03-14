@@ -1,5 +1,5 @@
 # Name
-![Name](/Images/the-hobbit215-594x309.png)
+![Name](/Images/the-hobbit215-594x309.jpg)
 
 ## Inspiration / Quote
 
