@@ -1,5 +1,5 @@
 # Autumn
-![Autumn Mayes](/Images/chef-profile.png)
+![Autumn Mayes](/Images/Kitty.jpg)
 
 ## Inspiration / Quote
 
